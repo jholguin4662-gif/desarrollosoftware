@@ -1,2 +1,0 @@
-# desarrollosoftware
-descripcion
